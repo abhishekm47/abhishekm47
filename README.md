@@ -1,4 +1,4 @@
-👋 Hi, I’m @abhishekm47
+👋 Hi, I’m Abhishek
 
 
 Passionate about intersection of business development and emerging technologies. I am constantly exploring innovative ways to solve real world problems and improve existing solutions. I genuinely enjoy working with people, taking risks and designing new products.
